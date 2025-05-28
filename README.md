@@ -97,6 +97,6 @@ Made with precision, creativity, and a deep love for bizarre adventures.
 
 by the Team Joestars
 
-(Tareq) Malak Ahmed Salim
-Doğuhan Avcıoğlu
-Zeynep Esin Temür
+* (Tareq) Malak Ahmed Salim
+* Doğuhan Avcıoğlu
+* Zeynep Esin Temür
