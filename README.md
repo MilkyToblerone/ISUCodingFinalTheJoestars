@@ -94,3 +94,9 @@ Whether you're a fan of JoJo or narrative games in general, JOJO: The AI Chronic
 ---
 
 Made with precision, creativity, and a deep love for bizarre adventures.
+
+by the Team Joestars
+
+(Tareq) Malak Ahmed Salim
+Doğuhan Avcıoğlu
+Zeynep Esin Temür
